@@ -1,4 +1,4 @@
-
+Private Internet Access (PIA) high-speed Extension: ad-blocker & camouflage-mode offers the most advanced Private Internet Access (PIA) extension, with ad-blocker and
 
 
 
